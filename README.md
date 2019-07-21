@@ -1,1 +1,1 @@
-# zlomenahul.cz
+# Klub přátel zlomené hole
