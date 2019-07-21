@@ -1,2 +1,1 @@
 # zlomenahul.cz
-Web Pages
